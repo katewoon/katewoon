@@ -1,19 +1,19 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=glattickty&color=b26c97&label=goals)
+![](https://komarev.com/ghpvc/?username=glattickty&color=b26c97&label=stars)
 
-   <img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/1cb871d2-d609-4078-be26-9087be1294b5" />
-
-
+   <img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/0245a076-f1d2-4bd3-8c7f-812d4fe75924" />
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=7c4878&center=true&width=435&lines=%E2%80%98My+Moon+My+Man%E2%80%99"/> </p>
+
+
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=7c4878&center=true&width=435&lines=%E2%80%98Shoot+Him+Down!%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：my husband/shane ; hollanderzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
-      ˚₊‧꒰ა my rose ; puptrickz ໒꒱ ‧₊˚
+ ⠀⠀⠀⠀⠀⠀⠀：my husband/alexander ; hollanderzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
+      ˚₊‧꒰ა my madison ; puptrickz ໒꒱ ‧₊˚
 
 　　　　
    𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
