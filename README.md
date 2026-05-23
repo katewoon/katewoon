@@ -30,7 +30,7 @@
      
    dreambur stans : schlatbur stans : stancy stans: 
      
-   parasocial fans : doubles.　 　⟡
+   parasocial fans : fariis defenders : doubles.　 　⟡
 
 　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 𐔌
 　﹒　
