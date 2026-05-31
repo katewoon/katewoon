@@ -13,8 +13,8 @@
  𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：my husband/tomate ; AmbitionsAtDawn⠀　𓏴⠀ ⁰⁰ ⁰⁰
-      ˚₊‧꒰ა my multi ; puptrickz ໒꒱ ‧₊˚
+ ⠀⠀⠀⠀⠀⠀⠀：my husband/multi ; AmbitionsAtDawn⠀　𓏴⠀ ⁰⁰ ⁰⁰
+      ˚₊‧꒰ა my tomate ; puptrickz ໒꒱ ‧₊˚
 
 　　　　
    𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
