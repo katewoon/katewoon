@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katewoon&color=b26c97&label=ewroon+kisses!)
+![](https://komarev.com/ghpvc/?username=katewoon&color=b26c97&label=ewroons+kisses!)
 
   <img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/a8f3aaf9-e4dc-40c9-98dc-6701644fe31c" />
 
