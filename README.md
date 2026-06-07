@@ -21,7 +21,7 @@
    
    pumpkin duo stans :  byler stans : hollanov stans : 
    
-   quackbur stans : quackcicle stans :  wichmmy stans : katewoon stans  ♡
+   quackbur stans : slimeriana stans :  wichmmy stans : katewoon stans  ♡
 
 　　　　　⌒  　dni. :  　 　dream supporters : wilbur soot supporters : 
      pumpkin-duo haters
