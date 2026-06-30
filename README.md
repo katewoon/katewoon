@@ -15,7 +15,7 @@
 
  ⠀⠀⠀⠀⠀⠀⠀：my husband/ewron ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
       ˚₊‧꒰ა my tomate ; puptrickz ໒꒱ ‧₊˚
-     ۪    𓏼 ͜͜  ꔫ my other ewron ; @neongutzz
+     ۪    𓏼 ͜͜  ꔫ my other ewron ; @neonguuttz
 　　　
    𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
    
