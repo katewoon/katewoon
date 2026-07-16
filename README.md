@@ -13,9 +13,9 @@
  𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：my husband/ewron ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
+ ⠀⠀⠀⠀⠀⠀⠀：my malewife/ewron ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
       ˚₊‧꒰ა my tomate ; puptrickz ໒꒱ ‧₊˚
-     ۪    𓏼 ͜͜  ꔫ my other ewron ; neonguuttz
+      ۪    𓏼 ͜͜  ꔫ my other husband/ewron ; neonguuttz
 
    
    𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
