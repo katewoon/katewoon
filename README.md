@@ -1,14 +1,13 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katewoon&color=b26c97&label=ewroons+kisses!)
+![](https://komarev.com/ghpvc/?username=katewoon&color=b26c97&label=multis+kisses!)
 
-  <img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/a8f3aaf9-e4dc-40c9-98dc-6701644fe31c" />
-
-
+ <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/b25e9e47-3c03-4ea0-a34e-16a376c0eaa6" />
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=7c4878&center=true&width=435&lines=%E2%80%98Kisses+On+Your+Hands!!%E2%80%99"/> </p>
+
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=7c4878&center=true&width=435&lines=%E2%80%98Me+And+Mr.+Wolf!!%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
@@ -33,5 +32,7 @@
      
    parasocial fans : fariis defenders : doubles.　 　⟡
 
-　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 𐔌
-　﹒　
+　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 　﹒　
+
+
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/693d166c-be39-4399-acab-9e754e2034c6" />
