@@ -17,16 +17,16 @@
       ۪    𓏼 ͜͜  ꔫ my other husband/ewron ; neonguuttz
 
    
-   𓏵  　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
+   𓏵  　　 ﹒　 　int   :　　  kateron atans : dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
    
-   pumpkin duo stans :  byler stans : hollanov stans : 
+   pumpkin duo stans :  byler stans : hollanov stans : needyoursauce
    
-   quackbur stans : slimeriana stans :  wichmmy stans : katewoon stans  ♡
+   quackbur stans : slimeriana stans :  wichmmy stans : tomatesauce stans  ♡
 
 　　　　　⌒  　dni. :  　 　dream supporters : wilbur soot supporters : 
      pumpkin-duo haters
      
-   ANY darkshippers : shotas : lolis :  Mileven stans :
+   ANY darkshippers : shotas : lolis :  mileven stans :
      
    dreambur stans : schlatbur stans : stancy stans: 
      
