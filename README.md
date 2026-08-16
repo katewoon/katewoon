@@ -1,21 +1,21 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katewoon&color=FF698A&label=voxs+kisses!)
+![](https://komarev.com/ghpvc/?username=katewoon&color=FF698A&label=maxs+kisses!)
+
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/4715fdd9-eb50-4e2c-8164-f85db34cbb56" />
 
 
-<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/7a8ab076-229b-4140-82df-129c55cdca3d" />
 
 
 
-
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=C87792&center=true&width=435&lines=%E2%80%98Me+And+Mr.+Wolf!!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=C87792&center=true&width=435&lines=%E2%80%98Video+Game+Luvr!!%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  miles ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：my malewife/vox ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
-      ˚₊‧꒰ა my luci ; puptrickz ໒꒱ ‧₊˚
-      ۪    𓏼 ͜͜  ꔫ my other husband/vincent ; neonguuttz
+ ⠀⠀⠀⠀⠀：my malewife ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
+      ˚₊‧꒰ა my husband!; puptrickz ໒꒱ ‧₊
+۪    𓏼 ͜͜  ꔫ my husband/max ; neonguuttz
 
    
    𓏵  　　 ﹒　 　int   :　　  kateron atans : dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
@@ -35,7 +35,6 @@
 
 　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 　﹒　
 
-<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/495888c6-1c99-4992-9d9b-e026d6611e75" />
 
-
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/20d926f7-7da3-4783-9ec1-ca38a56359b7" />
 
