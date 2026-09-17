@@ -1,13 +1,13 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katewoon&color=E599A2&label=diary+entries!)
+![](https://komarev.com/ghpvc/?username=katewoon&color=E76489&label=streams!)
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/a5d0c486-9c25-4385-8e3d-726183011c4f" />
-
-
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/4220c3cb-c533-4bef-b953-3a3fd4d6a47a" />
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=945A9E&center=true&width=435&lines=%E2%80%98Dead+Girl+Walking!!%E2%80%99"/> </p>
+
+
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=EE9777&center=true&width=435&lines=%E2%80%98One+Of+Those+Crazy+Girls!!%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  alexis ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
@@ -34,4 +34,4 @@
 
 　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 　﹒　
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/8c23142d-e0e4-409f-b759-c3010f39f56d" />
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/2ed79435-33d6-42e4-84ec-c25c461305d9" />
