@@ -34,4 +34,7 @@
 
 　　　　　(..◜ᴗ◝..)　　bye　　⋌　　bye!! 　﹒　
 
+<img width="570" height="156" alt="image" src="https://github.com/user-attachments/assets/bc0086be-dc31-46b1-a8bd-cf7d3ca6d53c" />
+ TYSM!!
+
 <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/2ed79435-33d6-42e4-84ec-c25c461305d9" />
