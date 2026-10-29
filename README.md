@@ -1,9 +1,9 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katewoon&color=E76489&label=prayers!)
+![](https://komarev.com/ghpvc/?username=katewoon&color=FEC4CF&label=kisses!)
 
+<img width="1497" height="1023" alt="image" src="https://github.com/user-attachments/assets/0ae0332c-281e-43fb-8ace-92c3cd7e7956" />
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/bb91787a-124f-4fbb-8503-e7b0c666a993" />
 
 
 
@@ -14,8 +14,8 @@
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
 
  ⠀⠀⠀⠀⠀：my malewife ; spawndrawzz⠀　𓏴⠀ ⁰⁰ ⁰⁰
-      ˚₊‧꒰ა my husband/heather m!; puptrickz ໒꒱ ‧₊
-۪    𓏼 ͜͜  ꔫ my husband/jd ; neonguuttz
+      ˚₊‧꒰ა my husband/multi!; puptrickz ໒꒱ ‧₊
+۪    𓏼 ͜͜  ꔫ my husband/ewron ; neonguuttz
 
    
    𓏵  　　 ﹒　 　int   :　　  kateron stans : dsmp/qsmp stans  :  heated rivalry fans :  stranger things fans : 
@@ -38,6 +38,6 @@
 <img width="570" height="156" alt="image" src="https://github.com/user-attachments/assets/bc0086be-dc31-46b1-a8bd-cf7d3ca6d53c" />
  TYSM!! 
  
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/e632e892-e620-4719-bb88-884cc5a46ca3" />
+<img width="720" height="456" alt="image" src="https://github.com/user-attachments/assets/022b6de9-5e11-4e11-b4ad-82babfa0bac5" />
 
 
