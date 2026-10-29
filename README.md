@@ -8,7 +8,7 @@
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=EE9777&center=true&width=435&lines=%E2%80%98He+Needs+Me!!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FED7D2&center=true&width=435&lines=%E2%80%98Imma+Bitch!!%E2%80%99"/> </p>
 
  𓏲⠀ ：ྀི   mimi   '  alexis ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜  ꔫ      Ꮺ   .     he╱she⠀! ⠀⠀⠀⠀.
